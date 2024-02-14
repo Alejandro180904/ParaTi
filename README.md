@@ -20,7 +20,11 @@ https://github.com/Alejandro180904/ParaTi/assets/159976134/72a1e8d0-47f5-471c-8e
 
 
 
-https://github.com/Alejandro180904/ParaTi/assets/159976134/07dec192-6d67-4d13-9d69-d341104b596a
+
+https://github.com/Alejandro180904/ParaTi/assets/159976134/06e88d04-d33e-463f-8dfd-bb81c459bf96
+
+
+
 
 
 
