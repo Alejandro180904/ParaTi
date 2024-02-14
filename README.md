@@ -9,16 +9,18 @@ No sabes lo feliz que me hace decirte lo mucho que te amo. te quise hacer una pa
 
 ### Día del capibara 
 
-https://github.com/Alejandro180904/ParaTi/assets/159976134/1a5f9fdd-200c-4c0b-ad06-358a081ee294
 
-
-
+https://github.com/Alejandro180904/ParaTi/assets/159976134/0a361774-c8df-4992-b3e4-8afcd782459d
 
 ### Día de nieve
-[![Descripción del video 2]
+
+https://github.com/Alejandro180904/ParaTi/assets/159976134/54cf2c79-49f1-46e8-a45e-a3cddbc7d7fd
 
 ### Día de parque xd
-[![Descripción del video 3]
+
+https://github.com/Alejandro180904/ParaTi/assets/159976134/3db39f0e-69dd-4c07-b295-1fb987f277b4
+
+
 
 ...
 
