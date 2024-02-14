@@ -14,11 +14,19 @@ https://github.com/Alejandro180904/ParaTi/assets/159976134/0a361774-c8df-4992-b3
 
 ### Día de nieve
 
-https://github.com/Alejandro180904/ParaTi/assets/159976134/54cf2c79-49f1-46e8-a45e-a3cddbc7d7fd
+
+
+https://github.com/Alejandro180904/ParaTi/assets/159976134/07dec192-6d67-4d13-9d69-d341104b596a
+
+
 
 ### Día de parque xd
 
-https://github.com/Alejandro180904/ParaTi/assets/159976134/3db39f0e-69dd-4c07-b295-1fb987f277b4
+
+
+https://github.com/Alejandro180904/ParaTi/assets/159976134/dfe4fed1-c304-4d6c-960e-44c5712b6372
+
+
 
 
 
