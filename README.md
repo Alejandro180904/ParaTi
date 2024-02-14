@@ -10,9 +10,8 @@ No sabes lo feliz que me hace decirte lo mucho que te amo. te quise hacer una pa
 ### Día del capibara 
 
 
+[Capi (video-converter.com).webm](https://github.com/Alejandro180904/ParaTi/assets/159976134/14fbd81b-e5c5-453f-95c9-8621b12ab7f5)
 
-
-https://github.com/Alejandro180904/ParaTi/assets/159976134/72a1e8d0-47f5-471c-8e68-8f88a449b78a
 
 
 
