@@ -8,8 +8,7 @@ No sabes lo feliz que me hace decirte lo mucho que te amo. te quise hacer una pa
 ## 🐇
 
 ### Día del capibara 
-[![Descripción del video 1]
-
+[![Descripción del video 1]([URL_PORTADA_VIDEO_1](https://i.pinimg.com/736x/ff/09/0b/ff090b94b1348acbd60d08b7b84901c3.jpg))]([URL_VIMEO_VIDEO_1](https://vimeo.com/912802076?share=copy))
 ### Día de nieve
 [![Descripción del video 2]
 
