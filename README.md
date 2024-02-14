@@ -22,17 +22,7 @@ No sabes lo feliz que me hace decirte lo mucho que te amo. te quise hacer una pa
 
 https://github.com/Alejandro180904/ParaTi/assets/159976134/1409d62f-50ba-4fce-beee-f6870f232f9f
 
-
-
-
-
-
-
-### Día de parque xd
-
-
-
-[Parquesito.webm](https://github.com/Alejandro180904/ParaTi/assets/159976134/7dfef014-7167-4b6c-885c-4adf8337bdfa)
+ Esos son dias que me gutaron mucho sobre todo el del capi te amo mucho se que te sientes mal por muchas cosas la vida no es facil amor pero siempre voy a estar para ti y ten la mentalidad de que siempre todo mejora mi vida TE AMO
 
 
 
