@@ -10,7 +10,11 @@ No sabes lo feliz que me hace decirte lo mucho que te amo. te quise hacer una pa
 ### Día del capibara 
 
 
-https://github.com/Alejandro180904/ParaTi/assets/159976134/0a361774-c8df-4992-b3e4-8afcd782459d
+
+
+https://github.com/Alejandro180904/ParaTi/assets/159976134/72a1e8d0-47f5-471c-8e68-8f88a449b78a
+
+
 
 ### Día de nieve
 
