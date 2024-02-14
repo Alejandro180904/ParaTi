@@ -10,7 +10,8 @@ No sabes lo feliz que me hace decirte lo mucho que te amo. te quise hacer una pa
 ### Día del capibara 
 
 
-[Capi (video-converter.com).webm](https://github.com/Alejandro180904/ParaTi/assets/159976134/14fbd81b-e5c5-453f-95c9-8621b12ab7f5)
+
+[Capibara.webm](https://github.com/Alejandro180904/ParaTi/assets/159976134/fbb454dd-1b1e-43ef-b99d-9550f1fab83f)
 
 
 
@@ -31,7 +32,8 @@ https://github.com/Alejandro180904/ParaTi/assets/159976134/1409d62f-50ba-4fce-be
 
 
 
-https://github.com/Alejandro180904/ParaTi/assets/159976134/dfe4fed1-c304-4d6c-960e-44c5712b6372
+[Parquesito.webm](https://github.com/Alejandro180904/ParaTi/assets/159976134/7dfef014-7167-4b6c-885c-4adf8337bdfa)
+
 
 
 
