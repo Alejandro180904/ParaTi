@@ -37,5 +37,7 @@ https://github.com/Alejandro180904/ParaTi/assets/159976134/81a996fd-57cb-47ac-ae
 
 ...
 
-Con amor,
-Alejandro jajaj que verguenza decir eso xd
+Con amor Alejandro, jajaj que verguenza decir eso xd
+
+
+Ehhh bueno nose si llegues a leer esto capaz y ya te olvidaste de esta pagina xd nose queria decirte que te amo, te extraño mucho, extraño mucho que me ames como lo hacias antes quiero conversar de todo y nada contigo, quiero durar horas y horas hablando ahora solo siento que me respondes y si no te escribo siento que tu no lo vas a hacer te amo mucho nose me da mucha tristeza que digas que no piensas en un futuro conmigo pq tu eres 50/50 ay nose *c desahoga aqui* ay nose jajaja te amo te amo te amo muchisimo ADRIANA y amarte me da tristeza pq talvez y tu poco a poco estas dejando de amarme y quisiera ser como  tu pero no puedo dejar de amarte eso me duele solo quiero que seamos como siempre, tambien me duele que me digas que antes eras feliz saliendo aunq sea al parque y ahora ya no eres feliz talvez ya te aburri y estas conmigo por costrumbre solo RECUERDA QUE TE AME CON TODO MI CORAZÓN TODOS ESTOS AÑOS te amo te amo.
