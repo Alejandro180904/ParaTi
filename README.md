@@ -83,3 +83,8 @@ Hola denuevo a mi :3 ehhh te soñe pero fue raro porque ultimamente ya te habia 
  
 y bueno pues no tendria mas que decir ammm ya no te he soñado supongo que es bueno pero nose me siento mal al soñarte pero creo que me siento mas mal al no hacerlo xd, son sentimientos encontrados, cada vez que me siento malito o asi me pongo a revisar nuestros mensajes de messenger y me curo xd pero siento que es malo depender de ello porque me sigo aferrando a ti de alguna manera y no deberia ser asi pero por el momento creo que seguire asi y ese a sido mi día de hoy y este mensaje es para mi yo del futuro cuando escriba nuevamente. Como estas Alejandro? Ya aprendiste a vivir sin la camis? Te va a ir bien yo confio en ti :3, y ya me voy Adios adios adios...................
 
+
+05/06
+
+
+wtf te soñe :c no que onda me desperte tan de la patada, he tenido que trabajar hasta madrugada por una entrega que debia hacerse hoy y por suerte acabe a tiempo..... bueno el punto es que he estado durmiendo re mal y ahora te soñe y por eso vine a escribirlo jaja y pues estabamos en el cole y te vi asi de la nada y me agarraste de la mano y que onda pense que ya no podria soñarte asi denuevo pero paso, creo que fue algo melancolico soñarte asi me recordo muchas cosas y bien en el sueño fuimos en un bus y nose pa donde xd pero supongo que era para tu casa como siempre saliamos del cole y ahi se acabo el sueño cuando estabamos en el bus porque me desperte asustado pq te soñe xd fin.
