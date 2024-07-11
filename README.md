@@ -1,4 +1,4 @@
-![image](https://github.com/Alejandro180904/ParaTi/assets/159976134/e3d317b4-0154-4f22-8ed6-0d3b0e07709d)# ParaTi
+
 # ❤️
 
 Mi noviecita linda Adriana ,
