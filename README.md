@@ -98,4 +98,11 @@ Hola /^w^/ como te va en la vida camis? a mi me va bien, hoy empece clases y que
 
 
 01/07
+
 No me di cuenta y ya han pasado 3 meses desde que no hablamos, nolose siento raro y me puse a pensar en eso y pues que rapido pasa el tiempo, no he sabido nada de ti y supongo que tu tampoco sabras nada de mi pero me va bien ya voy un mes en clases y todo normal quiero empezar a dibujar en digital :D, creo que me voy a comprar una tableta grafica para eso (jajaja desde que terminamos me compre muchas cosas jaja, osea no te reclamo nada yo ame hacerte feliz con cualquier dulce o comida) , quiero enfocarme en algo y siempre me gusto el dibujo aunq lo deje antes de la pandemia y creo que lo voy a retomar y quiero dibujarle al nube de primero y yap eso, nose si estos 3 meses han sido largos o han sido muy cortos han habido dias en los que siento que el tiempo es eterno y otros donde el tiempo ha pasado volando tan rapido que las semanas pasan y ni cuenta me doy aunq te extraño igual creo yo, te stalkeo casi a diario me gusta verte en tu foto jaja lo siento "el menos acosador" en fin ese es mi reporte del mes para esta pagina y que no sea eliminada por inactividad xd creo que si volvemos a hablar algun dia aunq siento que es imposible ahora mismo, bueno si eso pasa te enviaria esta pagina para que sepas me vida cuando me preguntes que he hecho en todo este tiempo :D y si no pasa pues seria solo para mi "bosteza" eso es todo buenas noches cuidate.
+
+
+17/07
+
+
+Rayos, bueno que te dire, uff he trnido una semana tan tan basura que nose y no tengo ganas de nada me siento tan triste? o ni eso solo quiero verte o oir tu voz nada mas me agarro una tristeza y me acordé qué dijiste que te podía llamar si algún día estaba así, obviamente no lo haría pero solo recorde eso, vine solo a escribirte o bueno simbólicamente para mi es así y me hace sentir mejor de alguna extraña manera, ay espero que cusndo vuelva q escribir aquí este mejor todo.
