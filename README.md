@@ -105,4 +105,10 @@ No me di cuenta y ya han pasado 3 meses desde que no hablamos, nolose siento rar
 17/07
 
 
-Rayos, bueno que te dire, uff he trnido una semana tan tan basura que nose y no tengo ganas de nada me siento tan triste? o ni eso solo quiero verte o oir tu voz nada mas me agarro una tristeza y me acordé qué dijiste que te podía llamar si algún día estaba así, obviamente no lo haría pero solo recorde eso, vine solo a escribirte o bueno simbólicamente para mi es así y me hace sentir mejor de alguna extraña manera, ay espero que cusndo vuelva q escribir aquí este mejor todo.
+Rayos, bueno que te dire, uff he tenido una semana tan tan basura que nose y no tengo ganas de nada me siento tan triste? o ni eso solo quiero verte o oir tu voz nada mas me agarro una tristeza y me acordé qué dijiste que te podía llamar si algún día estaba así, obviamente no lo haría pero solo recorde eso, vine solo a escribirte o bueno simbólicamente para mi es así y me hace sentir mejor de alguna extraña manera, ay espero que cuando vuelva q escribir aquí este mejor todo.
+
+
+02/08
+
+
+Ayyyy me senti raro al ver tu mensaje, rechaze el harte la pagina pq no se me senti utilizado o algo asi o que me buscaste para eso noma se sintio feito en fin, estuve pensandolo muchoooooo tiempo y creo que deberia eliminar tus mensajes, creo que al seguir leyendolos o al seguir recordando los momentos cuando enviabas esos mensajes me hacen aferrarme a algo que lastimosamente ahora ya no existe y...... pues talvez sea lo mejor para mi, he tratado de nose olvidarte o asi esas cosas de tipico despechado pero ahora, ahora acepto que te amo y esta bien pero renuncio a esperarte, renuncio a seguir idealizando un futuro contigo y renuncio a esperar que regreses acepto todo lo que siento por ti y acepto el que hayas terminado conmigo, lo acepto todo y ahora solo quiero liberarme de todo de ti es lo unico que espero y aspiro tener, "Libertad emocional de ti" no es tu culpa solo fui yo quien idealizo muchas cosas y sip voy a eliminar todo y tratar de seguir con mi vida extrañandote pero dejando de hacerlo poco a poco esa es mi meta muy posiblemente recaiga pero ya no habran mensajes de consuelo y bueno ya han pasado 4 meses espero estes muy bien camis :´)
