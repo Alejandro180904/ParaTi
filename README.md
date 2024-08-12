@@ -65,6 +65,7 @@ Creo que este va a ser un tipo diario? nose me siento raro y como siempre otro m
 
 
 *DÍA DE LAS MADRES*
+
 Ammm Bueno xd solo queria decir que feliz día Camis por ser la mamá de el Nubes e independientemente de nuestra sutuación siempre fuiste buena con el, por favor cuidale mucho y dale mucho cariño de mi parte tambien dile que lo quiero mucho y que fue la mejor compra que hice en mi vida para la mejor mujer que conoci en la vida y eso ehhh espero que hayas pasado un día increible y que seas feliz siempre y no sabes cuanto desearia decirte esto a ti directamente pero creo que es muy complicada la situacion y nose como lo tomarias entonces prefiero respetar tu espacio y ehh ya me alargue jaja cuidate te amo te amo te amo :3
 
 
