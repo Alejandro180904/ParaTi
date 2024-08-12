@@ -118,6 +118,8 @@ Ayyyy me senti raro al ver tu mensaje, rechaze el hacerte la pagina pq no se me 
 
 
 12/08
+
+
 Nose que decir solo quiero escribir aqui y liberar un poco el sentimiento reprimido hacia ti, efectivamente elimine todos tus mensajes, videos, audios, fotos y las fotos xd " Eso me dolio mas aksjas " perdon, pero osea desde que lo hice ya nose que hacer y me siento tan mal al no tener con que mas recordar lo que algúna vez fuimos, siento que ahora te stalkeo mas seguido solo quiero ahh quiero avanzar pero no puedo por mas que acepte todo lo bueno y lo malo que me haces y me hiciste sentir no puedo dejar de pensarte y eso me mata me mata todo ahora solo me queda esta pagina como un tipo de consuelo porque de no ser asi ya te hubiera escrito hace rato te juro que acepto que no vas a volver pero una parte muy en el fondo de mi te espera, te espera cuando voy los miercoles a acortarme en el lago de la carolina, te espera cuando aveces paso por la universidad central y voy por donde coges tu bus, te espera cuando reviso el messenger esperando que me hayas dicho algo y odio eso de mi ahora mismo y me pongo a pensar, yo estoy asi troste y decaido y pienso talvez y tu ya superaste todo o talvez ya viviste tu duelo en la relación mismo y ahora solo estoy yo solo con esto y quiero y no quiero volver a verte porque nose como reaccionaria no siento ganas ni de llorar solo simplemente me siento asi pero bueno solo queria decir eso espero que en algún otra vida hayamos podido tener la familia que siempre planeamos Adios. 
 
 
