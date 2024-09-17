@@ -124,4 +124,13 @@ Nose que decir solo quiero escribir aqui y liberar un poco el sentimiento reprim
 
 
 
+16/09
+
+![image](https://github.com/user-attachments/assets/85f569ae-52a9-45ba-8019-576d41dc4d0a)
+![image](https://github.com/user-attachments/assets/96b26c6e-fa1b-47aa-8996-1c96fa54bf56)
+
+Mi noviecita y yo ♥ la amo mucho te amo mucho mila preciosa.
+Bsito*
+
+
 
