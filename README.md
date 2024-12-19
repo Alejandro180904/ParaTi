@@ -142,5 +142,7 @@ Hola jaja, no sé, no me siento amado. Adriana, tal vez ahora sí ya te olvidast
 
 
 18/12
+
+
 Era inevitable, no?  me acabas de decir que ya no sientes lo mismo y sinceramente esto ya es un bucle yo te amo con mi vida entera pero tu no, no voy a obligar a nadie a nada asi que cuando suceda supongo que en fin de año solo te dire Adios y que seas muy feliz deseo que seas feliz no tengo nada mas que decir, el que me hayas dicho que ya no sientes lo mismo por mi simplemente me destrozo me mataste te lo juro, no pude darte la relación que quisiste y supongo que tendre que llevarme ese sentimiento siempre nose si estas sean las ultimas lineas que escriba, sinseramente el que me digas que ya no sientes nada por mi hace que el escribir aqui o el tratar de arreglar las cosas ya sea en vano recuerdo que te dije que cuando ya no habia amor es cuando todo acabo ya nada tiene sentido ahora no voy a rogar ni pedir arreglar nada lo voy a aceptar todo.
 
