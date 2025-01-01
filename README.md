@@ -162,3 +162,11 @@ La verdad, ya no sé siquiera si vas a leer esto o no. Igual siento que está de
 
 De verdad hubiera deseado que hubieras venido hoy. Lástima.
 
+
+
+
+
+01/01/25
+
+
+Ahhh no deberia estar escribiendo en esta pagina pero bueno, por donde empezar a sido un año wao maravilloso de verdad gracias por todo solo queria decirte Feliz año nuevo y que cumplas todo lo que quieres en este año, ilusamente pense que me ibas a decir felij año pero naaa bueno solo eso, se feliz chau y cuidate 
