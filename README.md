@@ -170,3 +170,10 @@ De verdad hubiera deseado que hubieras venido hoy. Lástima.
 
 
 Ahhh no deberia estar escribiendo en esta pagina pero bueno, por donde empezar a sido un año wao maravilloso de verdad gracias por todo solo queria decirte Feliz año nuevo y que cumplas todo lo que quieres en este año, ilusamente pense que me ibas a decir felij año pero naaa bueno solo eso, se feliz chau y cuidate 
+
+
+
+09/01/25
+
+
+Pudo haber sido diferente? no lo se me siento tan culpable siento que te perdi y aun para lo unico que no hay remedio es para la muerte nose que hacer, se que no deberia pensar en intentar algo porque ya no hay nada que sientas pero no puedo sacarme la idea de la cabeza no puedo dormir fuiste mi gran amor el primer amor de mi vida se que no fui tu primer amor pero tu para mi si, siempre toda mi vida te voy a recordar y amar en lo profundo de mi ser, deseo volver a verte despues de mucho tiempo y ver la persona en la que te vayas a convertir charlar de la vida talvez si o talvez no talvez y te vas de la ciudad Te amo muchisimo ♥ no deberia pero aun sigo haciendolo te amo con mi alma aprendi mucho gracias a ti 
