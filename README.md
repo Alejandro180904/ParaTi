@@ -4,7 +4,11 @@ Si algún dia lees toda esta pagina esta cancion le da un toque melancolico "Si 
 
 
 
-https://github.com/user-attachments/assets/34fefe3f-18ac-4d01-b586-3b4344aefbf1
+
+
+https://github.com/user-attachments/assets/f949e536-41c9-4668-b88c-4f94f6000a9b
+
+
 
 
 
