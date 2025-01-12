@@ -1,3 +1,14 @@
+Si algún dia lees toda esta pagina esta cancion le da un toque melancolico "Si me afecto lalaland" xd
+
+
+
+
+
+https://github.com/user-attachments/assets/34fefe3f-18ac-4d01-b586-3b4344aefbf1
+
+
+
+
 
 # ❤️
 
@@ -177,3 +188,10 @@ Ahhh no deberia estar escribiendo en esta pagina pero bueno, por donde empezar a
 
 
 Pudo haber sido diferente? no lo se me siento tan culpable siento que te perdi y aun para lo unico que no hay remedio es para la muerte nose que hacer, se que no deberia pensar en intentar algo porque ya no hay nada que sientas pero no puedo sacarme la idea de la cabeza no puedo dormir fuiste mi gran amor el primer amor de mi vida se que no fui tu primer amor pero tu para mi si, siempre toda mi vida te voy a recordar y amar en lo profundo de mi ser, deseo volver a verte despues de mucho tiempo y ver la persona en la que te vayas a convertir charlar de la vida talvez si o talvez no talvez y te vas de la ciudad Te amo muchisimo ♥ no deberia pero aun sigo haciendolo te amo con mi alma aprendi mucho gracias a ti 
+
+
+
+11/01/25
+
+
+Faltando minutos para que se acabe el día no tengo mas que decir estuve pensando todo el día si decirtelo en whats y luego creo que me bloqueaste de ahí tambien asi que pues lo hare aqui, feliz cumpleaños a ti feliz feliz feliz se siente raro porque es el primer cumpleaños de ti que no estamos juntos y supongo que es el inicio de algunos bueno me estoy alargando feliz cumpleaños y ya estas grande te conoci cuando tenias 16 wtf que loco el tiempo si que vuela, no? eres una persona exelente la mejor mujer que conoci en mi vida realmente espero volver a verte y ver como has crecido fisicamente y como persona :D espero cumplas muchos años mas y seas muy muy feliz aunque yo no pueda ver tu felicidad SIEMPRE VAS A OCUPAR UN LUGAR EN MI CORAZÓN y seras un recuerdo lindo Adios preciosa ♥.  
