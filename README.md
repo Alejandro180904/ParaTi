@@ -37,7 +37,7 @@ No sabes lo feliz que me hace decirte lo mucho que te amo. te quise hacer una pa
 
 https://github.com/Alejandro180904/ParaTi/assets/159976134/1409d62f-50ba-4fce-beee-f6870f232f9f
 
- Esos son dias que me gutaron mucho sobre todo el del capi te amo mucho se que te sientes mal por muchas cosas la vida no es facil amor pero siempre voy a estar para ti y ten la mentalidad de que siempre todo mejora mi vida TE AMO
+ Esos son dias que me gustaron mucho sobre todo el del capi te amo mucho se que te sientes mal por muchas cosas la vida no es facil amor pero siempre voy a estar para ti y ten la mentalidad de que siempre todo mejora mi vida TE AMO
 
 ## Hola mi amor te amo mucho gracias por este dia *Ojala tener muchos mas 14 de frebrero contigo*
 
