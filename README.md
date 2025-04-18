@@ -239,7 +239,8 @@ Este es el ultimo paisaje, es una granja en una pradera hermosa ♥
 
 
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVKkCttK1EI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+[![Ver video en YouTube](https://img.youtube.com/vi/XVKkCttK1EI/0.jpg)](https://youtu.be/XVKkCttK1EI)
+
 
 
 Y por ultimo la ultima conversacion de Joel Y Ellie, no te voy a mentir, al ver llorar a Joel luego de que Ellie le diga que no lo puede llegar a perdonar me mato pero son las consecuencias de nuestros actos, y con esto finalizo Siempre te voy a amar The last of us y a ti tambien mujer ♥. Hasta siempre 
