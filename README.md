@@ -211,3 +211,35 @@ Vi algo en tu IG y sabía que no debía hacerlo pero lo hice. Y lo que vi sí me
 
 
 Muchas gracias por haberme dicho esas palabras, sinceramente me sentia tan culpable estos mese y ahora me siento libre y a pesar de lo que vi en tu ig ya no siento resentimiento y se que tienes derecho a hacer tu vida y no soy nadie para juzgar solo me queda agreadecerte y seguir escribiendo aqui que es donde libero todo lo que siento ahhh gracias y si creo que deberia ser un hombre de fe espero me ayude gracias camis.
+
+
+
+18/04/25
+
+
+Supongo talvez nunca vaya a abandonar esta pagina, solo vine a decir que me pase The last of us 2 rayos que vacio me siento y es ironico pq la primera vez que jugue la parte 1 tambien lo subi aqui y pues eso, siento que el juego me acompaño en todo este tiempo y al terminarlo pues me agarro un vacio enorme se lo agradezco mucho :") en fin subo fotos de los lugares mas bonitos que me parecieron de esta obra maestra que diria es uno de mis 3 juegos favoritos mas hermosos de la vida. 
+
+
+
+![shot_20250405_223239](https://github.com/user-attachments/assets/70d1c17e-0dad-47d4-9e0a-cb75d5833cfa)
+
+Ellie en un dinosaurio ♥  "Mori  cuando aparecio un dinosaurio!!!"
+
+
+
+![shot_20250406_041446](https://github.com/user-attachments/assets/73023ef7-d41d-4e2e-a29f-432c01806c59)
+
+Aqui un paisaje de unas montañas, los paisajes asi me encantan de estados unidos 
+
+
+
+![shot_20250417_233125](https://github.com/user-attachments/assets/3fdbbe27-6d82-4fe0-ac72-17023d376882)
+
+Este es el ultimo paisaje, es una granja en una pradera hermosa ♥
+
+
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVKkCttK1EI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+
+Y por ultimo la ultima conversacion de Joel Y Ellie, no te voy a mentir, al ver llorar a Joel luego de que Ellie le diga que no lo puede llegar a perdonar me mato pero son las consecuencias de nuestros actos, y con esto finalizo Siempre te voy a amar The last of us y a ti tambien mujer ♥. Hasta siempre 
