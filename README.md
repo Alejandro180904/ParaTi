@@ -239,7 +239,9 @@ Este es el ultimo paisaje, es una granja en una pradera hermosa ♥
 
 
 
-[![Ver video en YouTube](https://img.youtube.com/vi/XVKkCttK1EI/0.jpg)](https://youtu.be/XVKkCttK1EI)
+Haz clic en la imagen para ver el video
+
+[![Haz clic para ver el video](https://img.youtube.com/vi/XVKkCttK1EI/maxresdefault.jpg)](https://youtu.be/XVKkCttK1EI)
 
 
 
