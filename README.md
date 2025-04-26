@@ -246,3 +246,12 @@ Haz clic en la imagen para ver el video
 
 
 Y por ultimo la ultima conversacion de Joel Y Ellie, no te voy a mentir, al ver llorar a Joel luego de que Ellie le diga que no lo puede llegar a perdonar me mato pero son las consecuencias de nuestros actos, y con esto finalizo Siempre te voy a amar The last of us y a ti tambien mujer ♥. Hasta siempre 
+
+
+
+
+25/04/25
+
+
+Odio me odio a mi mismo, despues de ver que continuaste con tu vida deberia nose olvidarte o no pensarte pero aqui sigo pensando en que haras que sera de tu vida me odio tanto porque TE SIGO RECORDANDO CON TANTO CARIÑO PORQUE!! creo que tu ya no me debes recordar con nada de cariño o afecto y supongo que por eso se te hizo mas facil, ojala fuera tu y me odio por eso a pesar de todo sigues volviendo a mi mente y nose el porque, te soñe hoy y no he podido olvidar la manera y el odio con el que me hablaste, quise ignorar mi sueño pero aun me duele como me traste nose pq esta semana ha sido mas fuerte este sentimiento y ahh dios el día de ayer le vi a tu papá cuando subio al bus te juro dios mio estaba temblando y nisiquiera me podia mover y no me vio al principio pero se sento en el asiento de al otro lado junto a mi y no me reconocio y dije uff me salve pero cuando ya me tenia que bajar me pare y nos quedamos viendo unos 2 segundos creo, Mujer han sido los segundo mas largos de toda mi existencia al final le salude y le di la mano toda temblorosa pero me baje al toque, se me vinieron tantos flashbacks "odio eso" esta semana si me agarro el bajon super fuerte, ahora estoy super convencido de que ya no lees esta pagina aunq en el fondo muy en el fondo de mi quisiera que pudieras leerla o la recuerdes en algun futuro nose si seas feliz espero que si aunq me duele que no forme parte de eso sabes, como sea nunca se como terminar estos mensajes y aveces vuelvo días despues a esta pagina y me da un poco de pena ajena ver lo que escribi pero me aguanto :D    
+
