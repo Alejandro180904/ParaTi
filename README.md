@@ -263,3 +263,12 @@ Odio me odio a mi mismo, despues de ver que continuaste con tu vida deberia nose
 
 Creo que este a sido el mes en el que mas he escrito en esta pagina asi que nose jjasaksf me siento tan nervioso y ahh mañana tengo una cirugia y nose que hacer me siento tan nolose nolose odio las agujas y pensar que me van a anestesiar con una me mata te lo juro escribo aqui pq no sobrevivo * el menos exagerado * jasfjasf pero sip siento que muero ay dios ojala me visitaras con un tarro de heladao pero aja asi que nimodo quiero calmar mi ansiedad escribiendo aqui asi que nose contare que estoy haciendo un proceso de autoaprendimiento de mi mismo y mis acciones quiero empezar a tomar decisiones maduras fuera del impulso y la ira, tambien deje de ver tu perfil creo que ya hace 2 semanas * es un avance para mi * poco a poco se me esta olvidando tu voz es triste pero supongo que es necesario tambien supongo que es pq elimine literalmente todo de ti, no te quiero olvidar ni "superar" quiero solo recordarte con cariño y no con dolor nada mas pero si quiero conservar todos los bonitos recuerdos que tenemos nada mas y eso si me calme un poquito :D esa es mi nota del día de hoy a media noche cuidate mucho bye. :)  * espero que me vaya bien mañana * TwT
 
+
+
+
+11/05/25
+
+
+
+Feliz día nuevamente a la mamá del Nubes que chistoso cada día de las madres no stamos juntos que ironico en fin vengo a decirte que feliz día ya que le cuidas le limpias le das de comes al Nubes y eso ya es un sacrificio por un ser vivo mas y eso te convierte es una mamá buena :D solo era eso nada mas 
+
