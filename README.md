@@ -272,3 +272,13 @@ Creo que este a sido el mes en el que mas he escrito en esta pagina asi que nose
 
 Feliz día nuevamente a la mamá del Nubes que chistoso cada día de las madres no stamos juntos que ironico en fin vengo a decirte que feliz día ya que le cuidas le limpias le das de comes al Nubes y eso ya es un sacrificio por un ser vivo mas y eso te convierte es una mamá buena :D solo era eso nada mas 
 
+
+
+
+
+12/05/25
+
+
+
+
+Ayuda dios esto es horrible compraron un jabon Adriana huele lit a ti! Pq dios mio que raro es esto raro y nostalgico dios mio me senti tan askfajkhf me lo restregue en toda la manito xd y me quede oliendo todo el día y si que raro se sintio escribir eso r
