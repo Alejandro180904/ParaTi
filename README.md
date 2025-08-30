@@ -270,7 +270,7 @@ Creo que este a sido el mes en el que mas he escrito en esta pagina asi que nose
 
 
 
-Feliz día nuevamente a la mamá del Nubes que chistoso cada día de las madres no stamos juntos que ironico en fin vengo a decirte que feliz día ya que le cuidas le limpias le das de comes al Nubes y eso ya es un sacrificio por un ser vivo mas y eso te convierte es una mamá buena :D solo era eso nada mas 
+Feliz día nuevamente a la mamá del Nubes que chistoso cada día de las madres no stamos juntos que ironico en fin vengo a decirte que feliz día ya que le cuidas le limpias le das de comer al Nubes y eso ya es un sacrificio por un ser vivo mas y eso te convierte es una mamá buena :D solo era eso nada mas 
 
 
 
@@ -290,3 +290,14 @@ Ayuda dios esto es horrible compraron un jabon Adriana huele lit a ti! Pq dios m
 
 
 Que rayos  estoy haciendo?.... maldita sea Adriana hace 3 meses que no he escrito aqui 3 meses donde pasaron tantas cosas y me entere de tanta igual siento que al final no todo termino del todo bien y nose porque MRDA sigo teniendo ese maldito mismo sentimiento hacia ti jajaja te vi el miercoles con tu novio supongo, eso deberia ser suficiente para mi, no?  suficiente para saber que has pasado de pagina y seguiste con tu vida PERO ENTONCES PORQUE SIGO AFERRADO PORQUE PORQUEEEEEEEEE me estoy volviendo loco nolose porque aun tengo amor hacia ti porque este maldito sentimiento no disminuye o se va porque, sigue ahi, no es posible que ya hayan pasado 8 meses y no haya vanzado en nada sentimentalmente hacia ti, nisiquiera he podido hacercarme a nadie porque inconcientemente tu imagen me viene a la mente y siento que te engaño o algo asi y cielos que estupido soy soy un idiota imbecil enamorado que no puedo siquiera entender que tu de manera conciente decidiste que no este mas en tu vida y aun asi sigo aferrado esperando que? nose que espero, la verdad no espero nada, porque sigo escribiendo en esta maldita pagina el dia de ayer te stalkee la verdad he dejado de hacerlo por semanas pero ayer lo hice y vi muchas historias muy confusas vi un ataud que onda la verdad, me da tanta tristeza que hayas vivido tantas cosas y no haya podido ayudarte o verte o tan siquiera entender que te sucede, ahora eres un completo misterio para mi mujer y NO SABES COMO DUELE, que patetico me siento amandote y tu con novio jasjahas QUE PATETICO SOY :") quisiera hablar contigo aunq nose como reaccionar ese día que te vi casi se me sale el alma te lo juro, deseo que seas feliz aunq muy en el fondo hubiera deseado que conmigo pero ya ves jaja, nose si he retrocedido en mi procceso al escribir aqui despues de 3 meses nose y pienso en como hacer que leas esta pagina y pienso y pienso pero para que? para que quiero que leas esto? para que cambie algo?? No creo que sea asi de facil, no creo que nada cambie, jajaj estoy hablando solito, estoy loco loco, no te he soñado y tampoco quisiera hacerlo, he quedado vacio de ideas Adios Pillo muy probablemente vuelva a escribir aqui y eso.
+
+
+
+
+
+
+29/08/25
+
+
+
+Que día para mas loco supongo, lamento no haber hablado mucho lo cual es ironico porque en estos 8 meses no ha habido día en el que no pensara que queria decirte muchas cosas pero a la final el simple hecho de verte tan nose simplemente me dejas sin palabras y con la mente en blanco pero bueno con lo sucedido y hablado de verdad sigo sintiendo mucha lastima por la situcaion y por ti no quisiera que sufras ni estes triste aunq es inevitable Adriana ayy mrda de verdad te amo pero no creo que podria estar contigo, no ahora y nose cuando tampoco la verdad no siento que puedas amar algo en este momento de tu vida y siento que hoy dia fui un tipo de consuelo nostalgico de tu pasado, ntp no te culpo de nada yo sabia que estaba haciendo al besarte pero de verdad me aguante esos bsos por 8 meses me los merecia jaja, espero que el tiempo ayude y yo voy a amarte hasta la ultima gota de amor que tenga por ti, aunq hay muchas cosas que me quedan por aclarar y supongo que diciendo esto me veo bien migajero jkasfjkasf, no le cuentes a nadie de esta pag ok? y tambien cabe la posibilidad de que tu no quieras saber nada pero bueno solo digo lo que siento y yo aun Quisiera hacerte una hijita linda que se parezca a ti y perdon por el comentario fuera de lugar bueno me estoy alargando, voy a enviarte el enlace de esta pagina pq supongo que ya lo borraste o nose en fin, no debes responder a nada pq seria un poquito incomodo que lo hicieras, seamos mejores personas y te deseo lo mejor se que vas a ser feliz pronto Milas, cuidate muchisimo gracias por el día de hoy.
