@@ -324,7 +324,7 @@ El día 2 pues comenzo muy madrugador ahora si, despertamos a las 6 y si eso es 
 
 
 
-Ohhh acabo de caer en cuenta que incio Septiembre............ Ojala alguien me viniera a dejar un regalito jaksjhaj mentira haber el día de hoy solo vine a sugbir fotos de mi viaje :D 
+Ohhh acabo de caer en cuenta que incio Septiembre............ Ojala alguien me viniera a dejar un regalito jaksjhaj mentira haber el día de hoy solo vine a subir fotos de mi viaje :D 
 
 
 
