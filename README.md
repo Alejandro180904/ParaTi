@@ -313,3 +313,100 @@ Que día para mas loco supongo, lamento no haber hablado mucho lo cual es ironic
 
 Miau miau miau Asi me recibio mi melcochita despues de 2 días de no verla jeje, * Si te preguntas que comio en estos 2 días * mi abuelita vino a quedarse a mimir aqui pq si, que miedo que se quede la casa sola puej y ella le dio de comer * bueno prosigo, fue un viaje muy bonito y tuve la oportunidad de pensar muchas cosas de verdad aun quiero verte aun sigo con ese deseo y porfa o bueno si quieres no podrias eliminar esta pagina? osea no la olvides MILA! si lo haces ya no te voy a querer y bueno me salgo del tema, creo que voy a escribir periodicamente aqui nuevamente pq? si y ya continuo con mi historia de mi increible viaje a la ciudad de Baños, la verdad comenzo un poco tarde pq nos demoramos en despertarnos lit Cuando te escribi recien estabamos saliendo q onda, luego de habernos atrasado al bus en el terminal de carcelen decidimos ir al terminal de Quitumbe D: pq aho habian aun buses segun el horario y cuestion que salimos a las 6 am de Quito .__., muy tarde y me toco en la ventana y hacia un sol todo malo, pero dejando de lado eso vine pensando todo el viaje en ti y los bsos que te di hjajashjdas DE VERDAD ME LOS MERECIA. hueles tan bien, ojala algun día hagan un aroma de jabon de mandarina combinado con olor a farmacia y yo compraria eso todos los días jeje, llegamos a Baños a las 10 am habia muchisima gente ni te imaginas y me desayune un tigrillo :D muy rico la vrd, buscamos un hotel y * wtf Adriana pq siempre que veo un cuarto de hotel me acuerdo de nosotros * q me pasa! jahjsj y dejando de lado eso el cuarto estaba muy bonita una ducha extrañamente familiar........ y una vez dejamos las cosas en el cuarto partimos a Una cascada llamada "La cascada del Diablo" jiji grabe muchas cosas y mi celu esta muerto asi que no creo alcanzar a subir fotos aqui asi que creo que mañana lo haga, una cascada muy hermosa y tampoco puedo evitar que seria hermoso que estuvieras ahí tambien * y jaja si suena canson decir eso a cada rato asi que cualquier lugar que diga que es hermoso recuerda que deseria estar junto a ti * en fin luego de eso comimos yo me comi un chaulafan pq no habia nada mas, habia cuy pero me daba desconfianza jajaja Desde que me dijiste lo del asadero de cuys arriba de tu casita desde ahi no veo los restaurantes de la misma manera * Adriana mensa pq me hiciste pedir un bolo sabor coca cola, te burlaste de mi TnT jaja me acorde de eso ahorita * y comi eso luego fuimos al Zoologico y bueno no te wua contar mucho de eso pq me da mucha lastima ver animalitos encerrados y no puse mucha atencion pero lindo lindo no era asi que omitamos ese lugar, merendamos un cafecito con humitas y llego super muerto al cuarto de hotel y llego a bañarme pq estaba muy sudado y la ducha jajaj * C acuerda * No se bañen escuchando reflexiones gente y bueno cai muerto dormido.
 El día 2 pues comenzo muy madrugador ahora si, despertamos a las 6 y si eso es madrugar para mi y nos cambiamos y llevamos una maletita con ropa pa meternos a la piscina y oh sorpresa estaba llenisimo wtf asi que dijimos uy nos dio cositas meternos a una piscina donde mas de 100 personas ya habian estado previamente asi que decidimos buscar otro lado y abrian todas hasta las 10 y eran las 7 xd que ibamos a hacer en 3 horas y asi estabamos caminando sin rumbo fijo y un bus dice " A Animal Park Animal Park!!! " y dijimos vamos aver si hay piscina ahí y Adriana ha sido la mejor deicision de nuestras vidas o para mi lo fue, llegamos y para empezar no habia piscina pero decidimos entrar un poco desanimados igualmente pq que ibamos a hacer, Mila era un zoo lleno de animales lindos pero eran libres LIBRES!! estaban como en un tipo ranchito osea no lo tomes literal lo de estaban libres pero tenian un espacio muy grande para vivir y se los veia felices pq eran animales domesticos habia Ponys, Caballos, Bufalos, muchos conejitos, cuys, Gallinas enanas lit, y bueno muchos mas que mandare fotos mañana, y dije que chevere osea normal pq pense que ya se acabo, PERO ADRIANA SEGUI CAMINANDO Y........ UN REX ENORME ENORME ENOMRE asnfjkasdhfb jksdbnfg ♥♥♥ HABIA UN PARQUE TEMATICO DE DINOSAURIOS QUE SE MOVIAN!!!!!!! Te lo juro que mori en ese momento que hermoso y se sentia tan bien saberme el nombre de la mayoria de dinos jijiji, Habian Ankylos, Quetzales, Tapejaras, Pteranodones, Rexes, Dylos, Brontos, Espinozaurios, Carnos, Velociraptores y ya xd son los que recuerdo y muy hermoso :D y pues en ese parke estaba MUY HERMOSO todo las vistas y todo pq estaba en una montaña super alta entonces se veia todo desde ahí, nos quedamos como hasta la 1na jajaja y regresamos re tarde yo almorce una tilapia frita muy rica y despues compramos boletos de bus atrasados jajaja y que vaina resulta que nos dieron unos numeros ya comprados la señora esa se habia equivocado y nos damos cuenta ya en el bus y por suerte o nolose 2 personas cancelaron el viaje y quedaron libres los 2 asientos que nos habia vendido mal y ya regrese muy cansado con el cuello todo torcido pero feli y ese ha sido un resumen muy breve de mi viaje, hare unas tareas y vere si subo fotos aqui chau cuidate espero estes bien Cami.
+
+
+
+
+
+
+01/09/25
+
+
+
+
+Ohhh acabo de caer en cuenta que incio Septiembre............ Ojala alguien me viniera a dejar un regalito jaksjhaj mentira haber el día de hoy solo vine a sugbir fotos de mi viaje :D 
+
+
+
+![Imagen de WhatsApp 2025-09-01 a las 22 02 57_57fe4fbf](https://github.com/user-attachments/assets/970e5c2c-685c-4b02-b358-d51dd35fc173)
+
+
+UN REX!!!! se movia que bendicion te lo juro era tan hermoso y grande 
+
+
+
+
+![Imagen de WhatsApp 2025-09-01 a las 22 02 57_ad88cd33](https://github.com/user-attachments/assets/bee51f6a-ba93-458c-aafd-69d9ce4564bc)
+
+
+
+Un quetzal que bonito sabias que ellos comian algunos brontos bbs
+
+
+
+
+
+![Imagen de WhatsApp 2025-09-01 a las 22 02 57_44ab8ec8](https://github.com/user-attachments/assets/3e9b6499-1515-45f2-905a-e16b396b722b)
+
+
+
+
+Un ponny chiquito :D 
+
+
+
+
+
+![Imagen de WhatsApp 2025-09-01 a las 22 02 58_9ac66722](https://github.com/user-attachments/assets/cc626bd9-ec64-4aaf-ab25-c8aebd07c3dd)
+
+
+
+
+Habia un conejo gordote bonito y dormido ♥
+
+
+
+
+
+![Imagen de WhatsApp 2025-09-01 a las 22 02 58_45cd1dc9](https://github.com/user-attachments/assets/b1e3f717-8c00-4473-801a-52fe15591a2c)
+
+
+
+
+La iglesia de baños muy linda 
+
+
+
+
+![Imagen de WhatsApp 2025-09-01 a las 22 02 58_2a9847a6](https://github.com/user-attachments/assets/8e184935-ef35-46c0-9a06-b446044fea38)
+
+
+
+
+Un rio muy lindo es el inicio del principio de la Cascada del diablo D:
+
+
+
+
+
+![Imagen de WhatsApp 2025-09-01 a las 22 22 08_1533e160](https://github.com/user-attachments/assets/4ecfd568-2b57-4905-8133-14d8f67a95a1)
+
+
+![Imagen de WhatsApp 2025-09-01 a las 22 22 08_08ca6289](https://github.com/user-attachments/assets/f2744617-e3eb-4dc2-a453-af0783f1d88d)
+
+
+
+
+Esta bonito todo el ambiente y muy bonito todo :D 
+
+
+En fin hay mas cosas pero me encataria contarte y enseñartelos personalmente algun día espero estes bien Milas cuidate.
+
+
+
+
+
+
+
+
+
