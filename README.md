@@ -408,5 +408,20 @@ En fin hay mas cosas pero me encataria contarte y enseñartelos personalmente al
 
 
 
+04/09/25
+
+
+
+
+El día de hoy vengo a conmemorar el día de hoy como el día de silksong y tu te estaras preguntando " Que es silksong ALejandro? " pues dejame guiarte mujercita silksong es la secuela de uno de los mejores metroidvanias de la historia y me refiero a Hollow khnight que esta en el top de mis juegos favoritos y uno de los cuales le he dedicado mucho tiempo, jaja recuerdo que cuando peleabamos me ponia a jugar por horas hasta que se te pase el enojo y me escribas xd, pero bueno hoy no venimos a habalar de eso, hoy despues de 6 AÑOTES de espera porfin ha salido la secuela mas esperada de todos los tiempos y lo mas importante lo lanzaron muy barato de verdad casi regalado y me lo compraron :") me lo regalaron que lindo, y gracias a eso pude ser uno de los primeros en poder jugarlo y esta hermoso y bueno  me siento tan feliz por eso el día de hoy.
+
+Inserto foto de Hornet * La protagonista *
+
+
+![202509~1](https://github.com/user-attachments/assets/47f648d7-e4c3-45a6-a708-68a2b1a19ace)
+
+
+
+
 
 
