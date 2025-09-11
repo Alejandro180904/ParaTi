@@ -424,4 +424,33 @@ Inserto foto de Hornet * La protagonista *
 
 
 
+11/09/25
+
+
+
+
+Ahhh me siento tan solo, jajaja nolose te soñe el dia de ayer fue muy bonito no te voy a mentir pero cuando despiertas sientes un vacío enorme Adriana te lo juro a veces me preguntó si es normal que después de habernos dejado hace un año aun sea normal seguir soñandote, pero es raro ahora me siento muy raro y me da miedo porque ya no me altera de nervios pensar en nosotros o así y no quiero de verdad quiero sentirme enamorado de ti siempre aunq a veces me duela tanto no ser correspondido como quisiera jajaj nolose bueno, esta semana ha sido chevere supongo, ayer presentamos un prototipo de nuestro trabajo al rector y nos felicitaron después fuimos a celebrar comiendo un chaulafan y ohhh fuimos al chifa frente al kfc de la Colón y jajaa irónicamente nos sentamos donde siempre soliamos sentarnos tu y yo fue muy nostálgico y ahora que lo pienso todo el sector dea universidad central hasta la comuna es muy muy nostálgico para mi y bueno jajaja estábamos hablando sobre que nombre ponerle a la IA de asistente de la llamada pq va a ser mujer y todos dieron Ideas y jajsjd nadie quiso ponerle Adriana a nuestra IA :'c jajaja pero bueno lo intenté, al final de quedó con el nombre de Lucia entonces asi se llama nuestra IA y yap ese ha sido mi semana hasta hoy jueves 1na de la mañana que estoy escribiendo bien me despido no sin antes decir un poema lindo.
+"Que mi ausencia te dé la paz que mi amor nunca pudo". 😺
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
