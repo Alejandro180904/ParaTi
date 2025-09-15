@@ -436,6 +436,14 @@ Ahhh me siento tan solo, jajaja nolose te soñe el dia de ayer fue muy bonito no
 
 
 
+14/09/25
+
+
+Que raro se supone que hoy hace 4 días atras hubieramos cumplido 4 años jkajjkasf q loco no? sigo pensando que era el 10 de octubre pero nose, solo queria escribir eso pq nose se me hizo un poco raro nada mas y ammm pues q te dire, te soñe el día de ayer pero ufff que pesadilla asi que simplemente me limitare a decir que no fue nada agradable la situaciion en la que me encontraba en mi sueño aunq pensadolo bien no es tan distinta a la situacion actual xD que mas te podria contar? mmmmmmmmm... ahh si, Lizbeth volvio de Australia por un mes, el día viernes salimos a bailar muy bonito todo, lit la minita tiene plata jajaja me dijo no te procupes nenorra yo pago y me compro una salchipapa me senti re consentido jahjahjas salimos con el grupo que eramos del cole muy lindo todo, Ismenia y su novio pelearon xd pero creo que eso ya es normal, Me pregunto si en su tiempo nosotros nos veiamos asi cuando estabamos juntos?.
+Regrese a mi casa como a las 11 Liz me pago el uber jaja :3, ella hablaba fluido ingles aunq me dijo que aun no podia escribir del todo bn pero muy cambiada la minita muy alta diria que hasta mas que tu aunq eso no lo puedo afirmar pq aja no te he visto entonces eso, diria que lo unico que cambio fue ella fisicamente pq estaba igual de chistosa como siempre jajaja y bueno esa fue mi semana, la siguiente semana esta dura pq tengo unos examenes jodidos diria yo ojala logre hacerlos normalmente y yap dicho eso me despido mujer espero te encuentres bien como siempre me despido no sin antes decir un poema jajaja me salen poemas en redes sociales y son lindos? por eso los digo.
+
+"Solo recuerdo tus ojos chocando con los míos, y desde aquel entonces mi espíritu te invoca. Ni la luz de la luna, ni el cantar de las aves, no en cielo o tierra hay nada que se compare con el brillo de tus ojos. Viendo tus ojos puedo descifrar el viento suave, el azul del cielo... por fin lo entiendo."
+
 
 
 
