@@ -448,6 +448,11 @@ Regrese a mi casa como a las 11 Liz me pago el uber jaja :3, ella hablaba fluido
 
 
 
+25/09/25
+
+
+
+Que piensas Adriana? me preguntó si pensaras en mi por lo menos una vez alguna vez en tu día, si me piensas cómo yo lo hago jaja pero no creo que eso pase, ammm esta semana a sido tan aburrida, quisiera ir a nadar a un río y me acordé que me habías dicho que no sabías nadar nose si ya sabras ahora o no pero me hubiera gustado enseñarte a nadar jajaja hubiera sido chévere, fue lindo hablar contigo el sábado jajaja estábamos hablando de ti con mi prima pq ella me preguntó y luego me quitó el celular sin que me diera cuenta y cuando escuché que se empezaron a rerir dije uyyy y ya xd pense que lo borré a a tiempo pero no fue asi xd ammm y bueno sobre lo que dijiste que tú mamá había dicho que hubiéramos tenido una hija linda eso me mato ajdjsjdjdj acabaste conmigo ésa noche no sabés como me encantaría que fueras la mamá ee mi hija :" ahhh nimodo bueno creo que ya debería ir a dormir me pongo raro en la noche, cuidste y se feliz o bueno trata de serlo :3
 
 
 
