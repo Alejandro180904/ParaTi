@@ -460,6 +460,15 @@ Que piensas Adriana? me preguntó si pensaras en mi por lo menos una vez  o algu
 
 
 
+05/10
+
+
+
+Jajaja que hago? Me siento tan estupido y amm sinceramente creo que en este punto ya solo me queda una cosa por hacer jaja como llegamos a este punto? 😿 nimodo ehhh jaja ya no vale la pena lamentarse por lo pasado ehhh nose porque vine a escribir aqui si puedo escribirte al ig tu misma me lo dijiste, bueno miento si se, me doy mucha pena ajena molestando tanto al insta y aunq digas no yo respondo normal o tranquila no es asi nisiquiera me has escrito tu con la excusa de que no sabes iniciar conversación, de verdad que estamos haciendo pq habernos hablado denuevo que sentido tiene, solo querias disculparte y porque seguirme la conversacion pq seguirme el juego pq decirme cosas lindas o chistes de "novios" cuando estamos juntos pq siento que me coqueteabas un poco cuando salimos o conversabamos antes, que sentido tenia eso, que querias de mi? que puedo darte? que mas puedo hacer por ti? que puedo hacer? que que queeeeeeeeeeeeeeeeeeeee, soy una persona que no sabe amar nisiquiera entiendo lo que siento en este momento estoy tan confundido y porque quiero seguir viendote porque no puedo nisiquiera dormir porque me invade la sensacion de que te estoy perdiendo jaja siquiera alguna vez te tuve??? nose porque divago tanto esto es horrible y soy un imbecil idiota tonto tonto que aun no ha aprendido nada despues de casi un año sigo en lo mismo, nunca voy a cambiar? me siento tan soloooo y me siento tan triste me he sentido tan solo y triste desde que no te he visto y bueno desde antes siento que no puedo decir eso a nadie pq no deberia sentirme asi, tengo una familia que me ama, un hogar, tengo gente buena que me rodea y me quiere no sufro de algún mal no tengo nada por lo que sentirme asi pero aun asi me aislo porque soy asi porque no hago muchas cosas bien, porque no soy capaz de cambiar, siento que no hago nada con mi vida talvez por eso me aferro a ti?? en los años q estuvimos juntos el sentimiento se habia hecho casi inexistente siento que estoy loco, creo que he retenido demasiado y llego a un punto de colapso q quiero llorar pero nisiquiera eso puedo hacer soy tan inutil q nisiquiera pude mantener una relación contigo no pude nisiquiera mantener algo que fue tan importante para mi, me siento perdido y siento tanta lastima de mi mismo ahora leyendo esto y da mas lastima q puedas leer esto jaja ya no me importa, en este punto creo que ya no importa nada, creo que deberia dejar de esperar que alguien me salve, quisiera encontrar una persona q pudiera de verdad verme por dentro que pudiera de verdad saber quien soy, y que me lo diga porque ni yo lo se por favor Adriana reza para que alguien pueda encontrarme para que alguien pueda verme porfavor me siento tan harto de todo de existir jaja sono como suicido eso jsakj wtf, hubiera deseado q hubieras podido verme Adriana pero siento que todo el mundo solo me ha visto fisicamente.
+
+
+
+
 
 
 
