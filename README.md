@@ -471,6 +471,17 @@ Jajaja que hago? Me siento tan estupido y amm sinceramente creo que en este punt
 
 
 
+14/01/26
+
+
+
+
+Q hago jajaja, bueno que dire hoy es el cumple de mi pá y pues ando horeando pavo ahorita, esto que siento nose que es no puedo explicar con palabras todo esto Viendo tu foto se que estoy a un mensaje de hablar contigo pero nose que me detiene nose si ya me he arrastrado lo suficiente o deberia arrastrarme mas? tan solo quisiera una señal; dios mio por favor ayudame hago bien? hago mal? Porque no puedo olvidarme de esta mujer? Acaso es una prueba? solo quiero nose que quiero nolose nolose estoy tan confundido porque a pesar de que ya haya pasado un año entero aun existe algo dentro de mi, todo se borra todo desaparece Adriana por favor dime algo TwT por lo menos dime que te deje en paz y no seas tan buena:(
+
+
+
+
+
 
 
 
