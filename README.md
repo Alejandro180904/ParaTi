@@ -491,10 +491,21 @@ Q hago jajaja, bueno que dire hoy es el cumple de mi pá y pues ando horeando pa
 
 
 
-Me pregunto que dira mi yo del futuro viendo que sigo escribiendo aqui xd, bueno pues he venido a contar mi sueño y no me preguntes pq sigo soñando pq no sabria explicartelo ni yo pero es algo que siento me siento tan abrumado con esto y bueno comienzo: Estabamos en la Universidad? no sabria decirlo al parecer yo estaba en clases de programacion y tu en clases de medicina sin saberlo ambos estudiabamos en el mismo lugar y de pronto nos cruzamos tu me saludaste con tu linda sonrisa como siempre tan buena y amable siempre me pregunte pq dabas esa vibra y bueno el caso es q empezamos a hablar denuevo y se que pasaron muchas cosas en el sueño pero no logro recordar pero tengo un vago recuerdo de que yo te buscaba y te confese que no eh podido olvidarme de ti lo cual no se aleja mucho de la realidad pero bueno el caso es que despues de un  tiempo de confesarte mi amor tus amigas (tenias amigas en ti sueño) el caso es q tus amigas me ayudaron a quedar contigo y creo que nos hicimos novios denuevo te lo juro que a pesar de q no recuerdo mucho el sueño fue "lindo supongo" y yap al finalñ tu viniste a mi casa y estaba toda mi familia te presente nuevamente con ellos y nose pq pero ellos empezaron a hablar sobre que ahora si debo cuidarte mas que debo ser mas atento y no ser un imbecil, Pq me hablaban a mi? yo que hice? jakshjas y peus al final estabamos caminando por un prado muy lindo y me dijiste q aun sentias algo por mi y despues me diste la mano y un bso y al final me desperte. sigo soñandote jajaja es extraño y queria contarlo pq nose? soy aferrado? talvez pero ya nimodo y yap ese era el sueño.
+Me pregunto que dira mi yo del futuro viendo que sigo escribiendo aqui xd, bueno pues he venido a contar mi sueño y no me preguntes pq te sigo soñando pq no sabria explicartelo ni yo pero es algo que siento me siento tan abrumado con esto y bueno comienzo: Estabamos en la Universidad? no sabria decirlo al parecer yo estaba en clases de programacion y tu en clases de medicina sin saberlo ambos estudiabamos en el mismo lugar y de pronto nos cruzamos tu me saludaste con tu linda sonrisa como siempre tan buena y amable siempre me pregunte pq dabas esa vibra y bueno el caso es q empezamos a hablar denuevo y se que pasaron muchas cosas en el sueño pero no logro recordar pero tengo un vago recuerdo de que yo te buscaba y te confese que no eh podido olvidarme de ti lo cual no se aleja mucho de la realidad pero bueno el caso es que despues de un  tiempo de confesarte mi amor tus amigas (tenias amigas en tu sueño) el caso es q tus amigas me ayudaron a quedar contigo y creo que nos hicimos novios denuevo te lo juro que a pesar de q no recuerdo mucho el sueño fue "lindo supongo" y yap al final tu viniste a mi casa y estaba toda mi familia te presente nuevamente con ellos y nose pq pero ellos empezaron a hablar sobre que ahora si debo cuidarte mas que debo ser mas atento y no ser un imbecil, Pq me hablaban a mi? yo que hice? jakshjas y peus al final estabamos caminando por un prado muy lindo y me dijiste q aun sentias algo por mi y despues me diste la mano y un bso y al final me desperte. Sigo soñandote jajaja es extraño y queria contarlo pq nose? soy aferrado? talvez pero ya nimodo y yap ese era el sueño.
 
 
 
+
+
+
+
+04/03/26
+
+
+
+
+
+De corazón quiero pensar que lees esto, ehhhh el día de ayer quise stalkearte jaja no pregunten pq, el caso tu perfil no me sale jaja pense q me bloqueaste pero jasjhasdf soy un intenso y le pregunte a una amiga si podia stalkearte y nme dijo q tampoco le salias, nose borrast tu ig? o hiciste nolose y me preocupa nose si estaras bien? y para ser sincero ya no tengo el valor para seguir escribiendote mas, de corazón espero q estes bien y q no te haya pasado algo malo jaja tu ex o novio no lo se me stalkea las historias supongo q esta igual de desesperado q yo por saber si estas bien, supongo q tu sola personalidad hace q las personas te quieran y seas inolvidable de verdad Adriana espero estes bien aunq no lo creas le rezo a díos cada q puedo y le pido por ti, ojala puedas leer esto y me digas q estas bien o por lo menos una señal y eso Que Diosito te cuide mucho Adriana ♥.
 
 
 
