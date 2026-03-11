@@ -510,3 +510,9 @@ De corazón quiero pensar que lees esto, ehhhh el día de ayer quise stalkearte 
 
 
 
+
+10/03/26
+
+
+
+Heme aqui escribiendo en esta pagina jsjsjs bueno como empiezo me ha ido muy bien diria q la vida esta mejorando un poco, cada vez te pienso menos y stalkeo menos y eso aunq no lo creas es un gran logro, pues me va bien en mi trabajo agradezco a la vida y a Dios por haberme permitido encontrarme con las personas correctas q me han ayudado hasta ahora en mi vida profesional jajaja no gano mucho pero hago algo q me gusta la verdad trabajo en un edificio enorme a lado del cci es muy bonito me siento exitoso jaskjaskdjas aunq es solo apariencia me falta mucho para el exito, en fin, el siguiente mes voy a la playa con mis amigos y quiero pensar q de forma personal he superado toda esta etapa "nuestra etapa, mi etapa de dolido, mi etapa de rogon, mi etapa de supeación etc etc " jajajja despues de esto quiero dar por cerrado o por lo menos un punto a parte obviamente aun eres el amor de mi vida el amor q nunca pudo ser y siempre vas a ser eso supongo q para tu ego escuchar eso debe ser un poco satisfactorio pero asi es, para mi es imposible olvidarte y asi son las cosas talvez te escriba en algún futuro quiero q me perdones por eso la verdad he fantaseado mucho con la idea de enamorarme de alguien mas, obviamente descubri en este año casi 2 años que el amor no se busca pero tampoco no quiero hacer nada al respecto asi q creo q me voy a abrir mas con las chicas siento q he sido muy cerrado con las mujeres supongo q en una parte muy interna de mi ser aun anhelaba q fueras tu y esop espero graduarme del insti pronto igual espero en si q este año sea muy positivo para mi solo queria escribir esto aqui es todo nada mas te quiero muchisimo Adriana cuidate ♥
