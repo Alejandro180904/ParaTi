@@ -530,4 +530,14 @@ https://github.com/user-attachments/assets/19256913-2c73-4802-984d-eba451d00ec4
 
 
 
+30/03/26
+
+
+
+Es extraño acabo de soñar 2 veces contigo, el primer sueño no lo recuerdo pero el segundo......... Resulta q estabamos de viaje en el curso?  nose pq estabamos juntos en algun curso pero asi era inicialmente no sabia que tu estabas en ese viaje pero despues te vi y dije wtf vi que te bsaste con un tipo de ahi jajaj me gusta hacerme sufrir a mi mismo por lo que veo y bueno entonces eran 2 buses tu tenias amigos en el 2do bus supongo pero por alguna razón te toco ir en el 1ero solita yo te vi y no te hable pero si trate de hacer q me notaras pero en el instante en que me viste me torciste los ojos jqskdjaskd como niña chiquita y lit me evitabas nose pero siempre sueño q me odias, talvez es asi como persivo nuestra relación ahora y no te juzgo He dicho y escrito cosas desde mi impulso que ni al caso pero bueno entonces me odiabas, resulta que por alguna razón mi sueño tenia una trama un poco turbia y pues el 1er bus en el que estabamos llegamos al destino q era un hotel bonito donde nos ibamos a hospedar y ahi fue que nos percatamos q el segundo bus no habia llegado y pues significa que el bus se perdio tu estabas muy preocupada y trate te lo juro trate de animarte o algo pero cada vez q hablaba la cagaba mas jajaja como en la vida real y ya se hizo denoche y no llegaba y creo que tu querias salir a buscar el 2do bus "La trama del bus perdido es rara, siento que ya lo habia escuchado o leido alguna vez pero no recuerdo donde y pues yo si sabia que el bus se perdio con la gente y cuando encontraron el bus estaba vacio sin nadie muy extraño" en fin entonces tu querias ir a buscarlo y todos dijeron q durmamos y todos ya tenian pareja para mimir extepto tu y yo y justo cuando ya ibamos a mimir Desperte :(. Nose el sueño raro pero te soñe sjdklasd 
+
+
+
+
+
 
