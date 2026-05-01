@@ -541,3 +541,12 @@ Es extraño acabo de soñar 2 veces contigo, el primer sueño no lo recuerdo per
 
 
 
+01/05/26
+
+
+
+
+
+
+Adriana olas, no creo que escriba mucho hajaja te soñé nuevamente pero esta vez fue extraño, yo te cite nuevamente para rogarte el lugar de la cita era raro, era justo en la iglesia de mi barrio kajsjs no me preguntes pq soñé con ese lugar pq ni yo lo se, y bueno te di flores y te pedí que volviéramos pero esta vez como que tu me hablaste, pero no a mi yo del sueño mas bien a mi yo interno a mi yo verdadero y me dijiste: Alejandro porque no puedes dejarme? Alejandro no crees que ya es hora? kajsjs eso fue muy triste y me desperté asustado :c, de verdad ya debería dejarte? siento q en estos 2 años no he podido amar a nadie de la manera en que lo hice contigo, me siento tan vacío y no es q lo haya intentado al contrario lo intente un par de ocasiones pero no podía evitar el comparar contigo, y nadie se merece eso, aun sigo sin entender como es q tu pudiste hacerlo tan rápido yo no puedo, ya no siento eso q sentía contigo, te lo juro no tenía ni ánimos de escribir algo lindo o de hacer algo lindo por alguien mas que no seas tu, creo q me va a tomar mas tiempo aunq en mi sueño mi subconsciente me haya dicho q ya es hora, muero de ganas de hablar contigo ojala me escribieras pero bueno ya me voy.
+
