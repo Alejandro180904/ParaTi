@@ -550,3 +550,12 @@ Es extraño acabo de soñar 2 veces contigo, el primer sueño no lo recuerdo per
 
 Adriana olas, no creo que escriba mucho hajaja te soñé nuevamente pero esta vez fue extraño, yo te cite nuevamente para rogarte el lugar de la cita era raro, era justo en la iglesia de mi barrio kajsjs no me preguntes pq soñé con ese lugar pq ni yo lo se, y bueno te di flores y te pedí que volviéramos pero esta vez como que tu me hablaste, pero no a mi yo del sueño mas bien a mi yo interno a mi yo verdadero y me dijiste: Alejandro porque no puedes dejarme? Alejandro no crees que ya es hora? kajsjs eso fue muy triste y me desperté asustado :c, de verdad ya debería dejarte? siento q en estos 2 años no he podido amar a nadie de la manera en que lo hice contigo, me siento tan vacío y no es q lo haya intentado al contrario lo intente un par de ocasiones pero no podía evitar el comparar contigo, y nadie se merece eso, aun sigo sin entender como es q tu pudiste hacerlo tan rápido yo no puedo, ya no siento eso q sentía contigo, te lo juro no tenía ni ánimos de escribir algo lindo o de hacer algo lindo por alguien mas que no seas tu, creo q me va a tomar mas tiempo aunq en mi sueño mi subconsciente me haya dicho q ya es hora, muero de ganas de hablar contigo ojala me escribieras pero bueno ya me voy.
 
+
+
+
+11/05/2026
+
+
+
+
+hola, lamento la tardanza de este mensaje aunq bueno ya ni se pq me disculpó si estoy un 90% seguro de que ya no lees esta página y si por algún milagro la sigues leyendo, pq lo harías? aun hay algo de sentimiento? jajaja yo buscando una excusa* bueno prosigo q me alargo, bueno primero deseándote un feliz día de la madre atrasado a ti a la mamá del nube, gracias por cuidarlo siempre gracias por ser su mamá, si yo fuera el nubes no pediría alguna otra mujer q me cuide ♥️, contexto rápido de pq no escribi el domingo exactamente, fui donde mi abuelita a celebrar el día y pues viendo una película se nos hizo denoche y nos agarro el toque de queda no podíamos regresar así q tuve q dormir en el suelo kajdjs * me duele el cuello * asi q escribo hoy y bueno siento q se hizo largo esta nota del mes, me bloqueaste por alguna razón aunq nose porque ahora? talvez no querías q viera algo aunq igual me preguntó pq te importaría lo q piense? si pase lo q pase yo amaría cada centímetro de ti :') quiero verte, muero tanto de ganas y creo q ya voy a terminar aquí esta nota, cuídate mujer espero q la estés pasando bien 
