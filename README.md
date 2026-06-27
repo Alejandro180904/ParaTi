@@ -559,3 +559,20 @@ Adriana olas, no creo que escriba mucho hajaja te soñé nuevamente pero esta ve
 
 
 hola, lamento la tardanza de este mensaje aunq bueno ya ni se pq me disculpó si estoy un 90% seguro de que ya no lees esta página y si por algún milagro la sigues leyendo, pq lo harías? aun hay algo de sentimiento? jajaja yo buscando una excusa* bueno prosigo q me alargo, bueno primero deseándote un feliz día de la madre atrasado a ti a la mamá del nube, gracias por cuidarlo siempre gracias por ser su mamá, si yo fuera el nubes no pediría alguna otra mujer q me cuide ♥️, contexto rápido de pq no escribi el domingo exactamente, fui donde mi abuelita a celebrar el día y pues viendo una película se nos hizo denoche y nos agarro el toque de queda no podíamos regresar así q tuve q dormir en el suelo kajdjs * me duele el cuello * asi q escribo hoy y bueno siento q se hizo largo esta nota del mes, me bloqueaste por alguna razón aunq nose porque ahora? talvez no querías q viera algo aunq igual me preguntó pq te importaría lo q piense? si pase lo q pase yo amaría cada centímetro de ti :') quiero verte, muero tanto de ganas y creo q ya voy a terminar aquí esta nota, cuídate mujer espero q la estés pasando bien 
+
+
+
+
+26/06/2026
+
+
+
+
+https://github.com/user-attachments/assets/3a0d412d-5173-4f42-b37b-5fc63f41af4d
+
+
+
+https://github.com/user-attachments/assets/5b895030-3e7b-4c54-b9dd-4b03b7d31c2f
+
+
+
